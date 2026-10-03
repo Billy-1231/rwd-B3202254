@@ -1,1 +1,1 @@
-Pitch 影片與逐字稿準備中，白天錄好後補上
+(https://youtu.be/VWn-2Et79XQ)
